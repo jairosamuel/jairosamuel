@@ -1,4 +1,4 @@
-- 👋 Hi, yo soy @jairosamuel
+- 👋 Hi, yo soy @jairoyupanqui
 - 👀 Yo estoy interesado en proyectos innovadores
 - 🌱 I’m currently learning much
 - 📫 How to reach me.... (trabajando en esto)
